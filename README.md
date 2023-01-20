@@ -5,7 +5,7 @@ I'm a 3D game Artist work-in-progress.
 - IG | instagram.com/Bordlello
 - ArtStation | artstation.com/bordlello
 
-I’m currently attending Tarabaralla
+I’m currently attending TheSign Academy
 
 Here are some ideas to get you started:
 
